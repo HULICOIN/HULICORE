@@ -1,6 +1,6 @@
 # H.U.L.I.
 
-Human prosperetity, 
+Human prosperety, 
 Upgrowth forests,
 Life force, 
 Influence others to make it happened!
